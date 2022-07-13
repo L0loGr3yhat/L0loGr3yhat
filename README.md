@@ -1,3 +1,3 @@
-# script
+L0loGr3yhat
 
-Jangan recode,hargai ciptaan orang lain
+
